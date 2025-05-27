@@ -8,7 +8,7 @@
 
 студент 2-го курсу, групи ІО-32 Кекух Андрій [Telegram](https://t.me/SPapor33)
 
-студент 2-го курсу, групи ІО-32 Цветков Влад [Telegram](https://t.me/brokefever)
+студент 2-го курсу, групи ІО-32 Цвєтков Влад [Telegram](https://t.me/brokefever)
 
 студент 2-го курсу, групи ІО-32 Лопушенко Кирило [Telegram](https://t.me/kezald)
 
